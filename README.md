@@ -1,0 +1,1 @@
+list thoughts after reading
